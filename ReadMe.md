@@ -1,0 +1,1 @@
+Hallo Sir, these are my answers to Number 2b,c and d. 
